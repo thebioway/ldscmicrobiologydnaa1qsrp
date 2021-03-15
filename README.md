@@ -1,1 +1,0 @@
-# ldscmicrobiologydnaa1qsrp
